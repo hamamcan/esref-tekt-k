@@ -1,0 +1,2 @@
+# esref-tekt-k
+selamunaleyküm
