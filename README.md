@@ -1,2 +1,2 @@
-# esref-tekt-k
+# esref-tektuk
 selamunaleyküm
